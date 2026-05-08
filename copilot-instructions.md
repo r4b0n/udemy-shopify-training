@@ -1,0 +1,1 @@
+/Users/710n7abs/Desktop/Tattoo/_dev/udemy-traning/AGENTS.md
